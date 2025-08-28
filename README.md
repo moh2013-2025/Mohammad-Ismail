@@ -24,6 +24,6 @@ Expanding my portfolio with practical case studies
 
 📫 Let's Connect
 
-GitHub: [Your GitHub link]
+GitHub: [https://github.com/moh2013-2025]
 
-LinkedIn: [Your LinkedIn link]
+LinkedIn: [www.linkedin.com/in/mohammad-ismail-19520561420957543567845311]
